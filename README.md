@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+This account is temporary and it will be deleted January, 2022.🤔
+
+Follow my official GitHub page [HERE](https://github.com/petruki)⚡
+
 <!--
 **roger-douglas/roger-douglas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
